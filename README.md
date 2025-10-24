@@ -10,6 +10,10 @@ i̶f̶ y̶o̶u̶ w̶a̶n̶t̶ t̶o̶ b̶u̶y̶ t̶h̶e̶n̶ c̶o̶n̶t̶a̶c̶t�
 
 <img width="157" height="432" alt="image" src="https://github.com/user-attachments/assets/b7918c84-6184-42ac-807a-9fa423fc5cf4" />
 
+<img width="76" height="47" alt="image" src="https://github.com/user-attachments/assets/d6cbf561-bf11-404f-b82b-6a59537ae5b3" />
+
+<img width="239" height="97" alt="image" src="https://github.com/user-attachments/assets/de6ae630-85e7-4697-922b-17faa265ab67" />
+
 
 # Directory listing
 
