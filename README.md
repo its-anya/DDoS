@@ -2,9 +2,10 @@
 All DDoS tools available
 Note -Not free
 
-selling in 
+if you want to buy then contact in telegram [Click Me](https://t.me/RatQuin)
+
 <img width="1366" height="768" alt="image" src="https://github.com/user-attachments/assets/a02e0619-3913-49fb-baa8-42ae371d67b6" />
-contact in telegram [Click Me](https://t.me/RatQuin)
+
 
 
 # Directory listing
