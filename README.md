@@ -41,6 +41,22 @@ i̶f̶ y̶o̶u̶ w̶a̶n̶t̶ t̶o̶ b̶u̶y̶ t̶h̶e̶n̶ c̶o̶n̶t̶a̶c̶t�
 
 <img width="255" height="84" alt="image" src="https://github.com/user-attachments/assets/79f5c200-5e91-4bb9-bf4b-5bb8c657db1d" />
 
+<img width="185" height="451" alt="image" src="https://github.com/user-attachments/assets/8c038b16-6bc7-40bb-8190-2fccbc67ea1f" />
+
+<img width="207" height="501" alt="image" src="https://github.com/user-attachments/assets/23ddd566-1b3a-41c5-b5ee-2652a73c8654" />
+
+<img width="190" height="509" alt="image" src="https://github.com/user-attachments/assets/19063d15-0f2c-4236-a461-3d167c8dfcd2" />
+
+<img width="191" height="518" alt="image" src="https://github.com/user-attachments/assets/4807841e-2287-43df-94cc-4300e9b385f9" />
+
+<img width="197" height="495" alt="image" src="https://github.com/user-attachments/assets/2accf91a-147f-4137-a640-23f20211c5b3" />
+
+<img width="157" height="474" alt="image" src="https://github.com/user-attachments/assets/d7d57489-1251-4284-8f8d-9c83cf82dbd1" />
+
+<img width="170" height="489" alt="image" src="https://github.com/user-attachments/assets/aa2ac7e4-7214-49ef-9337-a915277eb954" />
+
+
+
 # Directory listing
 
 | Mode  | LastWriteTime      | Length      | Name |
