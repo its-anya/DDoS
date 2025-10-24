@@ -14,6 +14,21 @@ i̶f̶ y̶o̶u̶ w̶a̶n̶t̶ t̶o̶ b̶u̶y̶ t̶h̶e̶n̶ c̶o̶n̶t̶a̶c̶t�
 
 <img width="239" height="97" alt="image" src="https://github.com/user-attachments/assets/de6ae630-85e7-4697-922b-17faa265ab67" />
 
+<img width="235" height="381" alt="image" src="https://github.com/user-attachments/assets/cb4d68ff-9299-4b4f-b8ab-f2e9cb8a06f1" />
+
+<img width="158" height="457" alt="image" src="https://github.com/user-attachments/assets/2e566b65-b6e3-45a8-a72f-64c88cf6d086" />
+
+<img width="158" height="163" alt="image" src="https://github.com/user-attachments/assets/4d8709af-94ea-4b1a-80cf-14ca2e587dda" />
+
+<img width="159" height="328" alt="image" src="https://github.com/user-attachments/assets/6afdcd43-0184-46c0-9660-f573e8482de2" />
+
+<img width="160" height="312" alt="image" src="https://github.com/user-attachments/assets/f40f1222-5bb1-4058-aaba-51f81c285a5b" />
+
+<img width="157" height="407" alt="image" src="https://github.com/user-attachments/assets/3f462070-d100-4b3d-8096-062e37bc6e04" />
+
+<img width="156" height="100" alt="image" src="https://github.com/user-attachments/assets/caff5eaa-8e8b-42b3-9d86-5159c900be19" />
+
+
 
 # Directory listing
 
