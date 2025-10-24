@@ -28,7 +28,18 @@ i̶f̶ y̶o̶u̶ w̶a̶n̶t̶ t̶o̶ b̶u̶y̶ t̶h̶e̶n̶ c̶o̶n̶t̶a̶c̶t�
 
 <img width="156" height="100" alt="image" src="https://github.com/user-attachments/assets/caff5eaa-8e8b-42b3-9d86-5159c900be19" />
 
+<img width="156" height="288" alt="image" src="https://github.com/user-attachments/assets/418e3d0b-9d1a-404f-8f1d-c131051697c0" />
 
+<img width="313" height="462" alt="image" src="https://github.com/user-attachments/assets/259fd7ee-9802-4d77-b2b3-b7f6bce32025" />
+
+<img width="319" height="341" alt="image" src="https://github.com/user-attachments/assets/1c4725c1-02f8-4f92-97fb-cc3d4569d287" />
+
+<img width="313" height="513" alt="image" src="https://github.com/user-attachments/assets/2919a9e3-1c04-4606-a2db-c9a7ae83739d" />
+
+<img width="297" height="517" alt="image" src="https://github.com/user-attachments/assets/c09004a2-0af9-420a-ae1b-662c74fb8491" />
+
+
+<img width="255" height="84" alt="image" src="https://github.com/user-attachments/assets/79f5c200-5e91-4bb9-bf4b-5bb8c657db1d" />
 
 # Directory listing
 
