@@ -7,6 +7,11 @@ i̶f̶ y̶o̶u̶ w̶a̶n̶t̶ t̶o̶ b̶u̶y̶ t̶h̶e̶n̶ c̶o̶n̶t̶a̶c̶t�
 <img width="1366" height="768" alt="image" src="https://github.com/user-attachments/assets/a02e0619-3913-49fb-baa8-42ae371d67b6" />
 
 <img width="281" height="330" alt="image" src="https://github.com/user-attachments/assets/88abffd2-a2dd-4d4d-9c2a-596eec5b5f9e" />
+<img width="285" height="236" alt="image" src="https://github.com/user-attachments/assets/a4bcadf4-cc21-414c-85b6-b7b912ec365d" />
+<img width="171" height="50" alt="image" src="https://github.com/user-attachments/assets/6e7a9cf7-6d90-44cd-9740-1676ac66bc79" />
+<img width="279" height="223" alt="image" src="https://github.com/user-attachments/assets/82a1bc3a-35da-4c47-86d9-d636b3f18e55" />
+<img width="168" height="123" alt="image" src="https://github.com/user-attachments/assets/506df61a-7814-4bad-903f-1a232f393a3e" />
+<img width="278" height="90" alt="image" src="https://github.com/user-attachments/assets/b04f8424-f8c9-49a3-8d3c-4c9823cc34a6" />
 
 
 <img width="1200" height="548" alt="image" src="https://github.com/user-attachments/assets/c6e06976-b591-4025-b856-711dcb87af79" />
