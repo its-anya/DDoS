@@ -6,6 +6,10 @@ i̶f̶ y̶o̶u̶ w̶a̶n̶t̶ t̶o̶ b̶u̶y̶ t̶h̶e̶n̶ c̶o̶n̶t̶a̶c̶t�
 
 <img width="1366" height="768" alt="image" src="https://github.com/user-attachments/assets/a02e0619-3913-49fb-baa8-42ae371d67b6" />
 
+<img width="1203" height="531" alt="image" src="https://github.com/user-attachments/assets/3ef6dbba-8f89-4946-96f0-ce108d8ca140" />
+
+
+
 <img width="239" height="85" alt="image" src="https://github.com/user-attachments/assets/c0fd42df-627b-4636-9c98-5a9c441ea688" />
 
 <img width="157" height="432" alt="image" src="https://github.com/user-attachments/assets/b7918c84-6184-42ac-807a-9fa423fc5cf4" />
