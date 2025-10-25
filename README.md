@@ -18,8 +18,6 @@ i̶f̶ y̶o̶u̶ w̶a̶n̶t̶ t̶o̶ b̶u̶y̶ t̶h̶e̶n̶ c̶o̶n̶t̶a̶c̶t�
 
 <img width="984" height="598" alt="image" src="https://github.com/user-attachments/assets/dc096d63-ed00-4571-97a3-bffa9747cdaa" />
 
-
-
 <img width="239" height="85" alt="image" src="https://github.com/user-attachments/assets/c0fd42df-627b-4636-9c98-5a9c441ea688" />
 
 <img width="157" height="432" alt="image" src="https://github.com/user-attachments/assets/b7918c84-6184-42ac-807a-9fa423fc5cf4" />
